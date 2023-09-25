@@ -9,6 +9,6 @@ Misi saya .
 Saya memiliki semangat untuk terus belajar dan berkolaborasi dengan orang lain untuk menciptakan solusi teknologi yang inovatif dan berdampak. Saya yakin teknologi memiliki potensi luar biasa untuk menjadikan dunia lebih baik, dan saya berkomitmen untuk berkontribusi terhadap perubahan positif.
 
 Hubungi kami .
-Jika Anda tertarik untuk berkolaborasi atau memiliki pertanyaan, silakan menghubungi saya melalui email di fahmimna@gmail.com . Saya selalu terbuka untuk mendiskusikan proyek menarik dan peluang baru. Jangan lupa untuk mengikuti saya di LinkedIn .
+Jika Anda tertarik untuk berkolaborasi atau memiliki pertanyaan, silakan menghubungi saya melalui email di muhfidaafifah@gmail.com . Saya selalu terbuka untuk mendiskusikan proyek menarik dan peluang baru. Jangan lupa untuk mengikuti saya di LinkedIn .
 
 
